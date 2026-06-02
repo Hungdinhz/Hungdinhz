@@ -71,7 +71,8 @@ Hi there 👋 I'm Phùng Đình Hùng
 ### 📫 Contact
 
 * **GitHub:** https://github.com/Hungdinhz
-* **Email / LinkedIn:** [Thêm link/email của bạn vào đây]
+* **Email:** phunghung12112005@gmail.com
+* **Contact:** 0355604559
 
 ### 🚀 Final Note
 
